@@ -24,7 +24,7 @@ Welcome to **FitWell**! Your ultimate health and fitness companion, designed to 
 
 ## 📹 FitWell Idea Visualization
 Explore the vision of FitWell through our detailed idea presentation:  
-[FitWell Idea Visualization](https://drive.google.com/file/d/19m25CGXWV6u89Rn7MhDLTl8sboaf4qnJ/view?usp=sharing)
+[FitWell Idea Visualization](https://drive.google.com/file/d/1u-WHksSGXrg-xzrt9FW8uhPzNU-PwvF8/view?usp=sharing)
 
 ---
 
